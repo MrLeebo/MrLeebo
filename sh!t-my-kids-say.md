@@ -1,6 +1,11 @@
+# Baby picture
+
 - 4yo L, upon seeing her baby pictures
   > It's me in a baby suit!
-- 3yo L, taking an interview
+
+# Taking an interview
+
+- 3yo L
   > What's your favorite color? Black
   > 
   > What's your favorite food? Apples
@@ -33,3 +38,16 @@
 
 - 2yo S, being given a toy stegosaurus
   > I don't want to eat that!
+
+# When I grow up
+
+- 4yo L
+  > When I grow up, I want to be a police officer. 
+- Mom
+  > You want to be a police officer?
+- 4yo L
+  > No. I want to be a doctor.
+- 3yo S, slightly mumbled
+  > I want to be a police officer too.
+- 4yo L
+  > I believe she said she wants to be a leaf. That's not a good choice. She's supposed up be a character. 
