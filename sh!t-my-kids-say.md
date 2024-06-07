@@ -49,7 +49,7 @@
   > You want to be a police officer?
 - 4yo L
   > No. I want to be a doctor.
-- 3yo S, slightly mumbled
+- 2yo S, slightly mumbled
   > Yeah, police.
 - 4yo L
   > I believe she said she wants to be a leaf. That's not a good choice. She's supposed to be a character.
