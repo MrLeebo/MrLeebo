@@ -50,7 +50,7 @@
 - 4yo L
   > No. I want to be a doctor.
 - 3yo S, slightly mumbled
-  > I want to be a police officer too.
+  > Yeah, police.
 - 4yo L
   > I believe she said she wants to be a leaf. That's not a good choice. She's supposed to be a character.
 
