@@ -52,4 +52,9 @@
 - 3yo S, slightly mumbled
   > I want to be a police officer too.
 - 4yo L
-  > I believe she said she wants to be a leaf. That's not a good choice. She's supposed to be a character. 
+  > I believe she said she wants to be a leaf. That's not a good choice. She's supposed to be a character.
+
+# Fireblower
+
+- 4yo L, seeing a man step outside to smoke a cigarette
+  > Look! A fireblower, like papa Joe!
