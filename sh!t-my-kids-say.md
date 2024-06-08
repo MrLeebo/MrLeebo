@@ -58,3 +58,10 @@
 
 - 4yo L, seeing a man step outside to smoke a cigarette
   > Look! A fireblower, like papa Joe!
+
+# Looking at a family picture
+
+- 4yo L, looking at a family picture of Mom, Dad, and her before her sister was born
+  > Look, there's me with mommy and daddy!
+- 2yo S
+  > And there's me, in daddy's tummy.
