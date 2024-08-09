@@ -65,3 +65,8 @@
   > Look, there's me with mommy and daddy!
 - 2yo S
   > And there's me, in daddy's tummy.
+
+# Getting a band-aid on her finger
+
+- 4yo L
+  > But how am I going to make a pinky promise?
