@@ -70,3 +70,5 @@
 
 - 4yo L
   > But how am I going to make a pinky promise?
+
+  > It's called a pinky promise. Not a finger promise.
