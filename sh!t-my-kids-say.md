@@ -72,3 +72,12 @@
   > But how am I going to make a pinky promise?
 
   > It's called a pinky promise. Not a finger promise.
+
+# Autocannibalism
+
+- 3yo S
+  > Ow, I bit my finger. 
+- Mom
+  > Why did you bite yourself?
+- 3yo S
+  > I'm so hungry!
