@@ -1,3 +1,12 @@
+# Number Ten
+
+- 3yo S, sitting on the toilet
+  > Dada, I'm in the toilet, I'm doing a number ten!
+- Dad
+  > Honey, we're going to need a new toilet. She's doing a number ten!
+- 4yo L, stepping into the shower
+  > I'm doing a number eleven!
+
 # Baby picture
 
 - 4yo L, upon seeing her baby pictures
