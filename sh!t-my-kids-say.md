@@ -1,3 +1,10 @@
+# Spider-Man
+
+- 3yo S
+  > I made Spider-Man!
+- 4yo L
+  > Uhm, Spider-Man doesn't look like a triangle.
+
 # Number Ten
 
 - 3yo S, sitting on the toilet
