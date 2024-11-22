@@ -1,3 +1,8 @@
+# Her First Joke
+- 4yo L
+  > How does the elephant eat his peanut?
+  > With his trunk!
+
 # Spider-Man
 
 - 3yo S
