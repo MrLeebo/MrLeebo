@@ -1,3 +1,10 @@
+# Christmas 2024
+
+- 4yo L
+  > Sometimes a reindeer's antlers just pop off!
+- Me
+  > You hate to see it.
+
 # Her First Joke
 - 4yo L
   > How does the elephant eat his peanut?
