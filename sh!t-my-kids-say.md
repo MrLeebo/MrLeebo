@@ -98,7 +98,9 @@
 
 - 4yo L
   > But how am I going to make a pinky promise?
-
+- Me
+  > You could use your other finger.
+- 4yo L
   > It's called a pinky promise. Not a finger promise.
 
 # Autocannibalism
