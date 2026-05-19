@@ -1,3 +1,10 @@
+# History
+
+- Me
+  > What was the name of the Spanish explorer who discovered America?
+- 4yo S
+  > Uhm... Captain America?
+
 # Christmas 2024
 
 - 4yo L
